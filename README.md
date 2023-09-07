@@ -12,4 +12,5 @@
 
 https://www.tinkoff.ru/
 
-![image](https://github.com/saveliykirsanov/mypresentation/assets/144109400/3db03a13-d8a1-4361-a16a-6d5ac4b18774)
+![image](https://github.com/saveliykirsanov/mypresentation/assets/144109400/4ed9c087-368e-4bbd-9911-88cdf566a034)
+
